@@ -1,3 +1,3 @@
-Many thanks and respect to you from the bottom of my heart
+Many thanks
 elzero web school ❤️
 
